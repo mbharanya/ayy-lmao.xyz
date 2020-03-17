@@ -7,4 +7,4 @@
 5. ???
 6. Profit
 7. oof
-8. _Inegleit_ (wisper version)
+8. _Inegleit_ (whisper version)
