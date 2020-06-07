@@ -4,7 +4,7 @@
 1. Alexa unplugged
 2. Kult Symphonies
 3. Lao gan ma deep house mix
-4. Get lit or die trying
+4. Get lit or die trying 2 (_electric boogaloo_)
 5. Hydration feat. Bob Marley
 6. Speed in the Jungle (feat. Kanye West)
 7. Side cheese whisper edition
