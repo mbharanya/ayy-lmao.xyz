@@ -7,7 +7,7 @@
 4. Get lit or die trying 2 (_electric boogaloo_)
 5. Hydration feat. Bob Marley
 6. Speed in the Jungle (feat. Kanye West)
-7. Side cheese whisper edition
+7. Side cheese _whisper edition_
 8. Floyd (big oof)
 9. Little dude feat. Eminem
 10. Moustache feat. Velomech
